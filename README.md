@@ -1,0 +1,1 @@
+# simplemathways.lol
